@@ -1,13 +1,11 @@
 <div align="center">
   <strong>
-    <font color="#b2aeaa">" 𝑭r𝑒𝔢𝑑o𝑚 𝔦𝗌 𝑎 l𝑒𝐧𝒈𝑡𝔥 𝔬f r𝖔𝔭e. &emsp; 𝐆𝖔𝒅 𝑤𝔞𝔫t𝗌 𝒚𝖔𝖚 t𝔬 𝔥𝑎𝔫𝔤 𝒚𝖔𝖚𝐫𝐬𝐞𝐥𝐟 𝑤𝔦t𝔥 𝔦t. "</font>
+    <font color="#b2aeaa">" Freedom is a length of rope. &emsp; God wants you to hang yourself with it. "</font>
   </strong>
   <br />
-  <img width="590" height="330" alt="4" src="https://github.com/user-attachments/assets/2198e702-1694-4cdf-85b5-d1b45da15044" />
+  <img width="590" height="330" alt="5" src="https://github.com/user-attachments/assets/b3680198-5f44-4f4f-9c76-1d709cd45a6e" />
 </div>
 <br>
-<br>
-
 <div align="center">
   <h1>
     <font color="#575049">Welcome!</font>
@@ -24,4 +22,11 @@
     <b><i>Supernatural</i></b> and <b><i>The Boys</i></b>, 
     so you might catch me wearing my Dean, Gabriel, Homelander, or Soldier Boy skin, but mostly Castiel.
   </p>
+
+<div align="center">
+  <strong>
+    <font color="#b2aeaa">ᘛ═══════════════════════════════════════════════════ᘚ</font>
+  </strong>
+<div align="center">
+  <img width="590" height="330" alt="4" src="https://github.com/user-attachments/assets/2198e702-1694-4cdf-85b5-d1b45da15044" />
 </div>
