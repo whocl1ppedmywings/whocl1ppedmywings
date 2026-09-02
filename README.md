@@ -1,32 +1,23 @@
 <div align="center">
   <strong>
-    <font color="#b2aeaa">" Freedom is a length of rope. &emsp; God wants you to hang yourself with it. "</font>
+    <font color="#817f78">⑅̣̣̣ᣟ𓐇݁　♪　"　Nuclear warheads ready to strike,　　　　◟𓈒ּུ 𓈒 ◞𓂃༷ ིྀ ̣̣﹒✙ᣟᣟ　　　　This world is so fucked, let's end it tonight.　"　︵‿ℐ ｡ </font>
   </strong>
   <br />
-  <img width="590" height="330" alt="5" src="https://github.com/user-attachments/assets/b3680198-5f44-4f4f-9c76-1d709cd45a6e" />
+<img width="1000" height="500" alt="1" src="https://github.com/user-attachments/assets/4b83017b-d98d-4577-9871-162293510a13" />
+    <font color="#817f78">.　　𓈒　 ֺ۪　　 ͜𓏼࿔　　[!]　　art credits:　@tonnnnniee　on　tiktok</font>
 </div>
 <br>
 <div align="center">
   <h1>
-    <font color="#575049">Welcome!</font>
-    <img width="160" src="https://komarev.com/ghpvc/?username=whocl1ppedmywings&label=wandering+souls&style=plastic&color=524b44" valign="middle">
+    <font color="#575049">𓏽ֺּׅᣟᣟ　Welcome!　ᣟᣟ꒱　.　</font>
+    <img width="160" src="https://komarev.com/ghpvc/?username=whocl1ppedmywings&label=wandering+souls&style=plastic&color=65625a" valign="middle">
   </h1>
- <p>
-    my name's Nikolai <i>or Nick for short</i>, more info about me on 
-    <a href="https://exxiled.carrd.co/">my carrd</a> if you're interested. 
-    I'm <i>mostly</i> off tab, so please whisper to me so I see the notification. 
-    I sit alone and love looking at the beautiful skins that people make.
+  <p>
+    My name is Nikolai, <i>or Nick for short</i>. You can read more about me on <a href="https://exxiled.carrd.co/">my carrd</a> page if you're interested.
+  </p>
+  <p>
+    <b>C+H</b> freely! I'm open to conversations, but please excuse me if I'm a bit awkward to talk to. I'm <b>mostly tabbed out</b>, so please whisper to me so I notice the notification. I love to sit around and compliment people's beautiful skins !!
   </p>
     <p>
-    Of all the fandoms I'm part of, I'm particularly interested in 
-    <b><i>Supernatural</i></b> and <b><i>The Boys</i></b>, 
-    so you might catch me wearing my Dean, Gabriel, Homelander, or Soldier Boy skin, but mostly Castiel.
+    I'm part of many fandoms, but hyperfixated on <b><i>Supernatural</i></b> and <b><i>The Boys</i></b> right now. I wear a Castiel skin most of the time, though you can also see me as Gabriel, Dean, Soldier Boy, or Homelander.
   </p>
-
-<div align="center">
-  <strong>
-    <font color="#b2aeaa">ᘛ═══════════════════════════════════════════════════ᘚ</font>
-  </strong>
-<div align="center">
-  <img width="590" height="330" alt="4" src="https://github.com/user-attachments/assets/2198e702-1694-4cdf-85b5-d1b45da15044" />
-</div>
